@@ -1,7 +1,7 @@
 # Getting to know ME...
 ___
 
-Hi I am Chanel Hutt,a Delaware native, and I love me. I hope you love you too. I am believer of energy and positivity. I developed a knack for optimism and adventure in my youth. 
+Hi, I am Chanel Hutt, a Delaware native, and I love me. I hope you love you too. I am believer of energy and frequency(quantum physics). I developed a knack for being optimistic and exploration in my youth. I am a curious, inquisitive, and observative creature by nature. 
  
 
 ## How can we work well together
